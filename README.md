@@ -13,7 +13,7 @@ $\color{#FCB7E4}{\text{✦ SUNSHINE ✦ RAINBOWS ✦ GLITTERS ✦ BUNNY ✦ CUPC
 
 
 .<img width="31" alt="téléchargement" src="https://github.com/user-attachments/assets/86552d05-2ce8-4635-b1d0-63ceb0fb36c3" />
-☆Hai~! i'm Yuri, but i also like to be called the character i cosplay! ꩜ i'm a femboy/demi boy ꩜ i go by He/Him/Bun/Paw☆
+☆Hai~! i'm Yuri, but i also like to be called the character i cosplay! ꩜ i'm a femboy/demi boy ꩜ i go by He/Him/Paw/Star☆
 <img width="31" alt="Kawaii Princess" src="https://github.com/user-attachments/assets/98808b9e-1b54-4e5e-bb27-3c85ffa7a93a" />.
 
 ⋆｡𖦹°⭒˚｡⋆
