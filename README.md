@@ -22,11 +22,11 @@ $\color{#FCB7E4}{\text{✦ SUNSHINE ✦ RAINBOWS ✦ GLITTERS ✦ BUNNY ✦ CUPC
 
 ___C+H___ always but i'll most likely be quiet, im also ___Semi-AFK___ most of the time since my pony town is on my second screen, i prefer ___whisper___ and i'll try to answer quickly! ⸜(｡˃ ᵕ ˂ )⸝♡
 
-$\color{#FCB7E4}{\text{Don't try to RP with me it makes me uncomfortable}}$ ⠀⠀⠀⠀⠀⠀⠀<img width="99" height="57" alt="641242609-9301f2a4-f187-4eb6-b585-025bcca7781b" src="https://github.com/user-attachments/assets/cbde8313-af61-472e-8c48-c01c81599bf6" /> ⠀⠀⠀⠀⠀⠀<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" />
+$\color{#FCB7E4}{\text{Don't try to RP with me it makes me uncomfortable}}$ ⠀⠀⠀⠀⠀⠀⠀<img width="99" height="57" alt="641242609-9301f2a4-f187-4eb6-b585-025bcca7781b" src="https://github.com/user-attachments/assets/cbde8313-af61-472e-8c48-c01c81599bf6" /> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" />
 
 
 My DNI are the basic criteria i'm lazy to list them, just dni if ur problematic :P
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ꒰১ 𝑰𝒎 𝒂𝒏 𝒊𝒏𝒕𝒆𝒓𝒏𝒆𝒕 𝑨𝒏𝒈𝒆𝒍 ໒꒱
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ꒰১ 𝑰𝒎 𝒂𝒏 𝒊𝒏𝒕𝒆𝒓𝒏𝒆𝒕 𝑨𝒏𝒈𝒆𝒍 ໒꒱
 
 <img width="35" alt="sparkles" src="https://github.com/user-attachments/assets/5897f6eb-a0bf-433e-a686-42edb62934f5" />
 ⋆｡𖦹°⭒˚｡⋆ 
