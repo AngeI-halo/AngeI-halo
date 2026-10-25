@@ -22,32 +22,33 @@ $\color{#FCB7E4}{\text{✦ SUNSHINE ✦ RAINBOWS ✦ GLITTERS ✦ BUNNY ✦ CUPC
 
 ___C+H___ always but i'll most likely be quiet, im also ___Semi-AFK___ most of the time since my pony town is on my second screen, i prefer ___whisper___ and i'll try to answer quickly! ⸜(｡˃ ᵕ ˂ )⸝♡
 
-$\color{#FCB7E4}{\text{Don't try to RP with me it makes me uncomfortable}}$ ⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="tumblr_3a8d42dd0526c0124ff12f6b2f948e48_55bd0ba3_250" src="https://github.com/user-attachments/assets/9d153f17-8763-461e-a320-1c51b1da438a" />
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" />
+$\color{#FCB7E4}{\text{Don't try to RP with me it makes me uncomfortable}}$ ⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="tumblr_3a8d42dd0526c0124ff12f6b2f948e48_55bd0ba3_250" src="https://github.com/user-attachments/assets/9d153f17-8763-461e-a320-1c51b1da438a" /><img width="99" height="56" alt="tumblr_58b54aae7fd179f99bb6a42a3e3c028a_1f54f53b_100" src="https://github.com/user-attachments/assets/e500bffe-1749-43a5-94aa-90d122eb2dd7" /><img width="99" height="56" alt="tumblr_54a0be01f9e9d3baef6e1042d49c72eb_a31c683e_250" src="https://github.com/user-attachments/assets/16148820-efee-4fde-b7ab-8b2bfa125d6c" />
+
+
 
 
 My DNI are the basic criteria i'm lazy to list them, just dni if ur problematic :P
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ꒰১ 𝑰𝒎 𝒂𝒏 𝒊𝒏𝒕𝒆𝒓𝒏𝒆𝒕 𝑨𝒏𝒈𝒆𝒍 ໒꒱
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" /> ꒰১ 𝑰𝒎 𝒂𝒏 𝒊𝒏𝒕𝒆𝒓𝒏𝒆𝒕 𝑨𝒏𝒈𝒆𝒍 ໒꒱<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" />
 
 <img width="35" alt="sparkles" src="https://github.com/user-attachments/assets/5897f6eb-a0bf-433e-a686-42edb62934f5" />
 ⋆｡𖦹°⭒˚｡⋆ 
 
 
-
-
-$\color{#FCB7E4}{\text{☆ Soft sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="tumblr_061f51f4682fd6b9e4e642e6a01de797_59a6322f_100" src="https://github.com/user-attachments/assets/967143d3-97c8-4d17-b0e3-8c2ced3a04e1" /><img width="99" height="57" alt="tumblr_22da57ca9d56ab104c3321f2fd16d2e3_3a60b7b6_250" src="https://github.com/user-attachments/assets/e18e6071-061e-42ae-86f2-12952e7278fc" /><img width="99" height="56" alt="tumblr_0894136326d3c84109ee7747ae75cc86_d374c149_100" src="https://github.com/user-attachments/assets/29dc3ad5-53ba-4718-8196-ff693b7df922" />
-
+$\color{#FCB7E4}{\text{☆ Soft sharing Yumeshipper .ᐟ.ᐟ F/o's :}}$ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="tumblr_061f51f4682fd6b9e4e642e6a01de797_59a6322f_100" src="https://github.com/user-attachments/assets/967143d3-97c8-4d17-b0e3-8c2ced3a04e1" /><img width="99" height="57" alt="tumblr_22da57ca9d56ab104c3321f2fd16d2e3_3a60b7b6_250" src="https://github.com/user-attachments/assets/e18e6071-061e-42ae-86f2-12952e7278fc" /><img width="99" height="56" alt="tumblr_0894136326d3c84109ee7747ae75cc86_d374c149_100" src="https://github.com/user-attachments/assets/29dc3ad5-53ba-4718-8196-ff693b7df922" /><img width="99" height="56" alt="647387716-5ea90a63-ff84-4222-a089-5c4a799c0c71" src="https://github.com/user-attachments/assets/3cdd02f9-3464-4851-a11d-7d1e4b6389af" />
 
 
 
 
-<img width="99" height="57" alt="tumblr_3271df4351d4de4f95bf57d198c12b61_e5b72afa_250" src="https://github.com/user-attachments/assets/6617281b-7737-44eb-9241-9048c6700901" />
-<img width="99" height="56" alt="tumblr_bb23a98cf8c65adb3b6e18be8dc580b3_5cfff70d_100" src="https://github.com/user-attachments/assets/84be5671-ad8b-4439-b2f5-a09e46a110b9" /> <--dumbass ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="55" alt="641189460-d93b6767-ac6e-4330-8f4a-cefaf247afcc" src="https://github.com/user-attachments/assets/762cd55d-ad2c-4beb-acd5-eab0f23f9af0" /><img width="99" height="57" alt="647388144-02a41c72-a70c-4bce-9781-76c6421240b6" src="https://github.com/user-attachments/assets/f250c250-1675-4dfd-bd3d-2fac3fd5fe9e" />
+
+
+<img width="99" height="57" alt="tumblr_3271df4351d4de4f95bf57d198c12b61_e5b72afa_250" src="https://github.com/user-attachments/assets/6617281b-7737-44eb-9241-9048c6700901" /><img width="99" height="56" alt="tumblr_896f73fce424253b528c6becd7c4e7f6_b5e7ea00_250" src="https://github.com/user-attachments/assets/ff797087-51bf-4f1c-a863-e8bf82682ce8" /> yes BOTH 😋 #slut ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="55" alt="641189460-d93b6767-ac6e-4330-8f4a-cefaf247afcc" src="https://github.com/user-attachments/assets/762cd55d-ad2c-4beb-acd5-eab0f23f9af0" /><img width="99" height="57" alt="647388144-02a41c72-a70c-4bce-9781-76c6421240b6" src="https://github.com/user-attachments/assets/f250c250-1675-4dfd-bd3d-2fac3fd5fe9e" />
 <img width="99" height="56" alt="647387739-7a4e6fe5-371e-4eac-af02-9860d4be5f51" src="https://github.com/user-attachments/assets/f3630706-cf01-4c1d-9c2e-d2b231b4c052" />
 
 
 
 Saiki would hate seing me coming but let me be delusional💔
+
+𖦹(it change a lot cuz i'm an indecisive bitch </3)
 
 ₊˚ ✧ ━━━━━━ ꒰ঌ ⊱ ·✦· ⊰ ໒꒱ ━━━━━━ ✧ ₊˚
 
