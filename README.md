@@ -28,7 +28,7 @@ $\color{#FCB7E4}{\text{Don't try to RP with me it makes me uncomfortable}}$ ⠀�
 
 
 My DNI are the basic criteria i'm lazy to list them, just dni if ur problematic :P
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" /> ꒰১ 𝑰𝒎 𝒂𝒏 𝒊𝒏𝒕𝒆𝒓𝒏𝒆𝒕 𝑨𝒏𝒈𝒆𝒍 ໒꒱<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" />
+⠀⠀⠀⠀⠀⠀<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" /> ꒰১ 𝑰𝒎 𝒂𝒏 𝒊𝒏𝒕𝒆𝒓𝒏𝒆𝒕 𝑨𝒏𝒈𝒆𝒍 ໒꒱<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" />
 
 <img width="35" alt="sparkles" src="https://github.com/user-attachments/assets/5897f6eb-a0bf-433e-a686-42edb62934f5" />
 ⋆｡𖦹°⭒˚｡⋆ 
@@ -52,7 +52,9 @@ Saiki would hate seing me coming but let me be delusional💔
 
 ₊˚ ✧ ━━━━━━ ꒰ঌ ⊱ ·✦· ⊰ ໒꒱ ━━━━━━ ✧ ₊˚
 
-$\color{#FCB7E4}{\text{۶ৎ Doubles are welcomed if you interact with caution and respect my boundaries!! :D}}$
+$\color{#FCB7E4}{\text{۶ৎ Doubles are welcomed if you interact with caution and respect my boundaries!! :D}}$ ⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="59" alt="tumblr_eb5ac7e1cab7f6c9decddccdddc8c419_79ef1a12_250" src="https://github.com/user-attachments/assets/f19f3fdc-44e0-44f2-9e3a-d77c23a16fb9" /><img width="97" height="57" alt="tumblr_8a37d390355d9d37ab941b061510985f_2b0f2f9e_100" src="https://github.com/user-attachments/assets/b1102381-b2fa-48b3-8d7f-3f57cd67b654" />
+
+
 <details>
   <summary><ins>☆ Yumeship boundaries! (click me :3)</ins></summary>
 
