@@ -22,7 +22,7 @@ $\color{#FCB7E4}{\text{✦ SUNSHINE ✦ RAINBOWS ✦ GLITTERS ✦ BUNNY ✦ CUPC
 
 ___C+H___ always but i'll most likely be quiet, im also ___Semi-AFK___ most of the time since my pony town is on my second screen, i prefer ___whisper___ and i'll try to answer quickly! ⸜(｡˃ ᵕ ˂ )⸝♡
 
-$\color{#FCB7E4}{\text{Don't try to RP with me it makes me uncomfortable}}$ ⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="tumblr_3a8d42dd0526c0124ff12f6b2f948e48_55bd0ba3_250" src="https://github.com/user-attachments/assets/9d153f17-8763-461e-a320-1c51b1da438a" />
+$\color{#FCB7E4}{\text{Don't try to RP with me it makes me uncomfortable}}$ ⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="tumblr_3a8d42dd0526c0124ff12f6b2f948e48_55bd0ba3_250" src="https://github.com/user-attachments/assets/9d153f17-8763-461e-a320-1c51b1da438a" />
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" />
 
 
