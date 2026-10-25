@@ -22,7 +22,8 @@ $\color{#FCB7E4}{\text{✦ SUNSHINE ✦ RAINBOWS ✦ GLITTERS ✦ BUNNY ✦ CUPC
 
 ___C+H___ always but i'll most likely be quiet, im also ___Semi-AFK___ most of the time since my pony town is on my second screen, i prefer ___whisper___ and i'll try to answer quickly! ⸜(｡˃ ᵕ ˂ )⸝♡
 
-$\color{#FCB7E4}{\text{Don't try to RP with me it makes me uncomfortable}}$ ⠀⠀⠀⠀⠀⠀⠀<img width="99" height="57" alt="641242609-9301f2a4-f187-4eb6-b585-025bcca7781b" src="https://github.com/user-attachments/assets/cbde8313-af61-472e-8c48-c01c81599bf6" /> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" />
+$\color{#FCB7E4}{\text{Don't try to RP with me it makes me uncomfortable}}$ ⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="tumblr_3a8d42dd0526c0124ff12f6b2f948e48_55bd0ba3_250" src="https://github.com/user-attachments/assets/9d153f17-8763-461e-a320-1c51b1da438a" />
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="30" alt="tumblr_fb7be0f00588aa2bae545247ff8ab6d6_10559e46_75" src="https://github.com/user-attachments/assets/f4639c9e-e164-44f9-863f-93caa7c02793" />
 
 
 My DNI are the basic criteria i'm lazy to list them, just dni if ur problematic :P
@@ -68,8 +69,8 @@ $\color{#FCB7E4}{\text{۶ৎ Doubles are welcomed if you interact with caution a
 </div>
 </details>
 
-<img width="320" alt="willy page" src="https://github.com/user-attachments/assets/694c5855-75c3-4539-85c9-53ad47e98759" /> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="641883499-55d4125a-2022-447a-88cb-06e3a01fb4eb" src="https://github.com/user-attachments/assets/2aff6754-77be-4581-91a3-7dbbfc30f42f" />
-<img width="99" height="56" alt="641883441-a33b6d0c-fc05-4c6d-ad2e-3678af8c1df9" src="https://github.com/user-attachments/assets/9563664f-6fcc-4232-9132-b6db9b9d2136" /><img width="99" height="56" alt="tumblr_7229e7991a3a3d95d34084372f0083fa_ab89e610_250" src="https://github.com/user-attachments/assets/7edeb040-1bf9-441e-ba6b-bb7aa92f144b" />
+<img width="320" alt="willy page" src="https://github.com/user-attachments/assets/694c5855-75c3-4539-85c9-53ad47e98759" /> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="laides" src="https://github.com/user-attachments/assets/2aff6754-77be-4581-91a3-7dbbfc30f42f" />
+<img width="99" height="56" alt="carameldansen" src="https://github.com/user-attachments/assets/9563664f-6fcc-4232-9132-b6db9b9d2136" /><img width="99" height="56" alt="yaoi" src="https://github.com/user-attachments/assets/7edeb040-1bf9-441e-ba6b-bb7aa92f144b" /><img width="99" height="57" alt="641242609-9301f2a4-f187-4eb6-b585-025bcca7781b" src="https://github.com/user-attachments/assets/cbde8313-af61-472e-8c48-c01c81599bf6" />
 
 
 ‧˚₊•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
