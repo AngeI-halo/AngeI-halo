@@ -80,11 +80,11 @@ $\color{#FCB7E4}{\text{۶ৎ Doubles are welcomed if you interact with caution a
 
 <p align="center"> LINKS </p>
 
-$\color{#0D1117}{\text{bleh}}$ $🍓STRAWPAGE🍓$ $\color{#0D1117}{\text{bleh bleh bleh}}$ $📌ATA$ $BOOK📌$ $\color{#0D1117}{\text{bleh bleh bl}}$ $🔗ALL$ $LINKS🔗$
+🍓STRAWPAGE🍓<p align="center" >📌ATA BOOK📌</p><p align="right" > 🔗ALL LINKS🔗</p>
 
-<a href="https://soft-plush.straw.page" target="_blank" ><img width="240" alt="Animation Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/07ffb97c-2a88-43a9-b58a-c4b1175175bb"/></a>
-<a href="https://str4wb3rry.atabook.org/" target="_blank" ><img width="240" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/f8396111-b6ba-45f8-9862-66da8a6067a4"/></a>
-<a href="https://linkslinks.straw.page" target="_blank" ><img width="240" alt="໒꒰ྀིっ ˕  _ ˵꒱ྀི১ ♡ - Click to view on Ko-fi" src="https://github.com/user-attachments/assets/852371cd-0291-4f78-af27-5ed7ed6440a4"/></a>
+<a href="https://soft-plush.straw.page" target="_blank" ><img width="240" alt="Animation Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/07ffb97c-2a88-43a9-b58a-c4b1175175bb"/><p align="center" ></a>
+<a href="https://str4wb3rry.atabook.org/" target="_blank" ><img width="240" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/f8396111-b6ba-45f8-9862-66da8a6067a4"/></p><p align="right" ></a>
+<a href="https://linkslinks.straw.page" target="_blank" ><img width="240" alt="໒꒰ྀིっ ˕  _ ˵꒱ྀི১ ♡ - Click to view on Ko-fi" src="https://github.com/user-attachments/assets/852371cd-0291-4f78-af27-5ed7ed6440a4"/></a></p>
 
 <img width="97" height="57" alt="tumblr_357f99a4d9204f5d64d8f27c63fabe32_a7a17875_250" src="https://github.com/user-attachments/assets/ef686e7b-c320-4b29-a3a6-9ba67cc31062" />
 <img width="97" height="57" alt="tumblr_419278a408f0c12dbd544b75ccb2a11b_577221f9_100" src="https://github.com/user-attachments/assets/81326e1e-4c73-431e-8953-0396860140fe" />
