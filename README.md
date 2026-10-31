@@ -80,7 +80,7 @@ $\color{#FCB7E4}{\text{۶ৎ Doubles are welcomed if you interact with caution a
 
 <p align="center"> LINKS </p>
 
-🍓STRAWPAGE🍓⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀📌ATA BOOK📌⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀🔗ALL LINKS🔗
+🍓STRAWPAGE🍓⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀📌ATA BOOK📌⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀🔗ALL LINKS🔗
 
 <a href="https://soft-plush.straw.page" target="_blank" ><img width="240" alt="Animation Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/07ffb97c-2a88-43a9-b58a-c4b1175175bb"/>
 <a href="https://str4wb3rry.atabook.org/" target="_blank" ><img width="240" alt="Heart Pixel Sticker - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/f8396111-b6ba-45f8-9862-66da8a6067a4"/>
